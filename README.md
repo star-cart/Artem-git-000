@@ -1,2 +1,3 @@
-- 👀A dedicated Front-End Engineer with proven experience in small and big businesses in helping them build and maintain technology-based businesses from the ground up.Passionate about going the extra mile to ensure that customers are unquestionably satisfied with the product or service provided.
+- 🙋‍♀️ Hi, Welcome to visit to my Github.
+- 👀A dedicated Front-End Engineer with proven experience in small and big businesses in helping them build and maintain technology-based businesses from the ground up. Passionate about going the extra mile to ensure that customers are unquestionably satisfied with the product or service provided.
 - 💞️ Eager to work with an employer who has a good idea while achieving success through long-term cooperation.
